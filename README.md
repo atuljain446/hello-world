@@ -5,4 +5,3 @@ Phalana Dhinkana Phalana Dhinkana Phalana Dhinkana Phalana Dhinkana
 Phalana Dhinkana Phalana Dhinkana Phalana Dhinkana
 Phalana Dhinkana Phalana Dhinkana
 Phalana Dhinkana
-1
